@@ -1,0 +1,1 @@
+participations in competitive programming. 
